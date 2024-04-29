@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lihim30
-- 👀 I’m interested in 
+- 👀 I’m interested in ...
 - 🌱 I’m currently learning the basics of coding
 - 📫 How to reach me ...
 - 😄 Pronouns: he/they
